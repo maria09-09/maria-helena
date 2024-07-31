@@ -2,7 +2,7 @@
 
 
 
-_readme da maria
+_readme da maria,esse readme servirá para realizar atividades de P.C_
 
 
 
