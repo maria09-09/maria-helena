@@ -1,3 +1,3 @@
 ### mariahelena
 _gif do neném_
-![url](https://tenor.com/view/gap-slapped-knock-out-punch-gif-5122019)
+![url](https://media.tenor.com/wAx8P0HZlJAAAAAM/gap-slapped.gif)
